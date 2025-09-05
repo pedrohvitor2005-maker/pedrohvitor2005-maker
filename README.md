@@ -17,4 +17,4 @@
 ---
 
 📫 *Como me encontrar:*  
-[LinkedIn](https://linkedin.com/in/seu-linkedin) | [E-mail](mailto:seu-email@email.com)
+[LinkedIn](www.linkedin.com/in/pedro-vitor-624738380) | [E-mail](mailto:pedro.h,vitor2005@gmail.com)
